@@ -7,7 +7,6 @@
 - 📫 How to reach me: Samar@samarvir.com
 - ⚡ Fun fact: Crows can hold grudges against specific individual people.  
 
-P.S. - I hate crows. 
 
 
 
